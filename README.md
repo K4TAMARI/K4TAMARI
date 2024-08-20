@@ -1,4 +1,4 @@
-## HI
+## HI i spam alot so if you dont leik it just block me pls!!! no dni i block ppl i dislike
 
 <div align="center">
 
