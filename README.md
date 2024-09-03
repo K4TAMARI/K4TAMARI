@@ -1,5 +1,1 @@
-## HI this is a spam account so if you dont leik it just block me pls!!! no dni i block ppl i dislike
-
-<div align="center">
-
-[ATA !!](https://zombii.atabook.org)⠀⠀⠀⠀⠀[prn page :33](https://en.pronouns.page/@zombiimedic)
+![16e05efcf6d15ca608013d8b5687549eae76f311](https://i.pinimg.com/564x/79/c5/0b/79c50bad30635d9abe9925aa3f955f5c.jpg)
